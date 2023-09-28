@@ -3,6 +3,7 @@ sarahi cruz bahena
 ## que puedo hacer para que mis compañeros esten informados sobre su bienestar reproductivo y sexual
 ### "Desde hace años se viene hablando y polemizando acerca de la llamada educación sexual en las escuelas, tanto públicas como privadas. Se discute sobre si es apropiado informar sobre la sexualidad a varones y niñas juntos en el mismo salón, si se debe escuchar la opinión de los padres o no respecto a toda esta temática; sobre todo si, como se intenta a menudo, se debe comenzar desde el jardín infantil, a la más temprana edad.
 ### Dar conocimientos sexuales detallados en la clase o en privado a niños en la pre-pubertad, es potencialmente dañino. El peligro de ello consiste en el período de “latencia” en el desarrollo y crecimiento de la personalidad humana. Este período tiene una extensión variable en cada ser humano, pero en general se puede ubicar desde los seis años hasta aproximadamente los once años.
+El tema es demasiado amplio como para abarcar en un folleto como éste, por lo tanto, aquí solamente hablaremos de la formación que se da en un mismo salón de clase a niñas y niños juntos. Muchos de estos programas dan una instrucción muy detallada, no solo de la mecánica sexual, sino de los detalles clínicos de la actividad sexual humana y sobre el comportamiento de los alumnos en su edad pre-pubertad
 
 Durante ese período, los pensamientos sexuales, las fantasías e intereses sexuales son mínimos y la época esa de la vida es ideal desde el punto de vista de formar el carácter.
 
